@@ -1,0 +1,2 @@
+# THE-DAY-OF-SAGITTARUS
+一個用來存放學習歷程GIF的地方
